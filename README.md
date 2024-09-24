@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data analysis, web development, and sustainable tech solutions.
 - 🌱 I’m currently learning Advanced data science techniques and web development frameworks 
 - 💞️ I’m looking to collaborate on Data analysis projects, open-source web applications, and initiatives focused on agricultural sustainability.
-- 📫 How to reach me - Email: veronicahkimani1998@gmail.com, LinkedIn: www.linkedin.com/in/veronicah-njeri-kiman
+- 📫 How to reach me - Email: veronicahkimani1998@gmail.com, LinkedIn: www.linkedin.com/in/veronicah-njeri-kimani
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I can cook a mean traditional dish from my kikuyu culture!
 
